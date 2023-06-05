@@ -1,2 +1,2 @@
 # images
-## going to be deleted
+## delete?
